@@ -1,4 +1,4 @@
-# 
+# Enhance Jupyter Notebook for PC | Jupyter Notebook for Windows with smart Jupyter Notebook for PC | Jupyter Notebook for Windows Integration | data-analysis + automated-reports,
 
 
 
